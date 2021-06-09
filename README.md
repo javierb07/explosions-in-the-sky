@@ -11,12 +11,12 @@ Also, along with other projects it is shown in this Mozilla Hub:
 
 A poem based on the project:
 
-Impacientes y caóticos;  
+*Impacientes y caóticos;  
 abandonados y erráticos.  
 En la noche se agitan  
-aquellos que anticipan.   
+aquellos que anticipan.*   
 
-La llegada de un guía,  
-los lidera por la vía  
-que con su voluntad  
-desate la tempestad.  
+*La llegada de un guía  
+que los lidere por la vía.  
+Para que con su voluntad  
+se desate la tempestad.*  
