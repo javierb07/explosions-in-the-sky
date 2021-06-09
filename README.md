@@ -19,4 +19,4 @@ aquellos que anticipan.*
 *La llegada de un guía  
 que los lidere por la vía.  
 Para que con su voluntad  
-se desate la tempestad.*  
+se desata la tempestad.*  
