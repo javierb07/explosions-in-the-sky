@@ -17,6 +17,6 @@ En la noche se agitan
 aquellos que anticipan.*   
 
 *La llegada de un guía  
-que los lidere por la vía.  
-Para que con su voluntad  
-se desata la tempestad.*  
+los lidera por la vía,
+que con su voluntad
+desata la tempestad.*  
